@@ -1,4 +1,4 @@
-![Untitled242_20250427180421](https://github.com/user-attachments/assets/b9040d52-ee31-4668-84c2-38461da8c91f)
+![Untitled242_20250427182102](https://github.com/user-attachments/assets/c995b898-7d39-436b-b8d1-aaac3fa4df45)
 
 <p align="center"> { KWAZII is my name! }
 <p align="center"> | 🫐 |
