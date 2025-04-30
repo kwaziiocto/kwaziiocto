@@ -19,4 +19,4 @@
 
 <p align="center"> I am a very caring guy, "but you don't know me!" that's okay 👍
 
-i lowkey hate this template but whatever no one clicks on ts
+self-taught tinting pony maker (this sounds awful but its real guys i DID tint by myself)
