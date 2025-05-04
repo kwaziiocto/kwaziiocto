@@ -18,5 +18,3 @@
 ![Untitled268_20250427174734](https://github.com/user-attachments/assets/583b94a3-00ce-4877-9b6a-49524732baf8)
 
 <p align="center"> I am a very caring guy, "but you don't know me!" that's okay 👍
-
-self-taught tinting pony maker (this sounds awful but its real guys i DID tint by myself)
